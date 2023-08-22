@@ -30,7 +30,15 @@ Onlinecourses–Coursera
 
 **PROFESSIONAL EXPERIENCE![](Aspose.Words.09019c4e-aa67-4a71-8bbc-29082796f546.002.png)**
 
+2019-2023-MORJSolarSystem
 
+*2018- 2022* Manager–CPUCell
+
+*2016-2018* ITManagerandAutoCADDrawer–PIKMCDbayeh *2014-2018* PeertoPeer–INTERSOS
+
+*2015-2016* Security–SPCsecurity
+
+*2015-2016* Sales–CLASSCityMall
 
 **ADDITIONAL INFORMATION![](Aspose.Words.09019c4e-aa67-4a71-8bbc-29082796f546.003.png)**
 
