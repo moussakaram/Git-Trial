@@ -49,3 +49,4 @@ mobilephonesmaintenance,createandinstallnetwork
 **Languages** Excellent command of Arabic (mother tong), English and French
 
 *Note: Holder of a driving permit since2008 References areavailableupon request*
+<img src="mk.jpeg">
